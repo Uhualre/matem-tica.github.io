@@ -1,1 +1,1 @@
-# matem-tica.github.io
+# matemtica.github.io
